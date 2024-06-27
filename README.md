@@ -1,4 +1,4 @@
 # bingo
 aaye hyye oe hoeeyy
 <b>
-badobadi badi (Prabisha Pakhrin)
+Author - Prabisha Pakhrin (bingo)
